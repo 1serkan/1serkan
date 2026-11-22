@@ -8,6 +8,7 @@ My passion for programming started when I was around 13, and I'm currently study
 
 I enjoy learning new technologies, solving problems, and building projects that turn ideas into reality.
 
+**Have something cool in mind? Feel free to reach out!**<br>
 📫 Email: seozk@proton.me
 
 
